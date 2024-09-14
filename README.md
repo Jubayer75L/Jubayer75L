@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Jubayer75L
+- 👀 I’m interested in Data analytics 
+- 🌱 I’m currently learning Data analytics 
+- 💞️ I’m looking to collaborate on Data analytics project
+- 📫 How to reach me ... maill me jubayer2679@gmail.com
